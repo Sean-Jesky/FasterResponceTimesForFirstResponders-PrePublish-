@@ -4,7 +4,7 @@ needs a bit of work, for desgining the system is rather simple but thinking is s
 
 granted its pretty easy to set up and idk, it could be implemented like ten tomorrows from now if we wanted really.. if they hired someone whoes like... the best at this stuff..
 
-still working on bits here and there for the paper but people are vultures sometimes, and i really want something more than ive ever wanted before in my life, so had to take this approach
+still working on bits here and there for the paper but people are vultures sometimes, and i really want something more than ive ever wanted before in my life, so had to take this approach and publish as fast as i could in any way i could - now  once complete or to the best of my ability till i can think again in good conditions, ill send it off to everyone everywhere in this country.
 
 its really hard to think still i know my work has gaps but i cant see much still. even if i never escape from this, others will be better off. 
 
