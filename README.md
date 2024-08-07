@@ -7,3 +7,6 @@ granted its pretty easy to set up  and idk, it could be implemented like ten tom
 
 
 still working on bits here and there for the paper but people are vultures sometimes  and i really want something more than ive ever wanted before in my life, so had to take this approach
+
+
+its really hard to think still i know my work has gaps but i cant see much still. even if i never escape from this, others will be better off. 
