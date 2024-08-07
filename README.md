@@ -1,6 +1,6 @@
 here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year.
 
-needs a bit of work, for desgining the system is rather simple but thinking is still very difficult in these conditions, but the core is there, i just had to start, and getting this out there feels like the start of the only great thing i could ever imagine. i just know, every bone in my body says so. just trying to impress one person really.. every other women (every other women is just a girl compared to her) can just walk away i feel like ive found the one.... off topic..is it though?
+needs a bit of work, for desgining the system is rather simple but thinking is still very difficult in these conditions, but the core is there, i just had to start, and getting this out there feels like the start of the only great thing i could ever imagine. i just know, every bone in my body says so. just trying to impress one person really.. every other women (every other women is just a girl compared to her) can just walk away; i feel like ive found the one, but she hasnt said a word so shes just - my WOMD for now.... off topic..is it though?
 
 granted its pretty easy to set up and idk, it could be implemented like ten tomorrows from now if we wanted really.. if they hired someone whoes like... the best at this stuff..
 
