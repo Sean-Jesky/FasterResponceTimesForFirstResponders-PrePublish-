@@ -11,8 +11,10 @@ its really hard to think still i know my work has gaps but i cant see much still
 
 i should just post all my notes on this that i did as well, but in my current living conditions im suprised i did this much or could even think of this basic idea.
 
-    TODO:
-        -Powerpoint
-        -How, When, Step by Step
-        -Q&A from professionals
+    maybe TODO's:
+        -Powerpoint - How, When, Step by Step.
+        -Q&A from professionals.
         -BETA testing propositions and where (Military bases might be the best place to test this solution to Faster Responce times, or other citys within citys that have a rather static number cars a day and can be kept as a good test enviroment.)
+        -Edge cases & solutions.
+        -possible effects on traffic stability.
+        -how to incentivise civilian's to follow these rules (id suggest using insurance companies, if they get a photo of their licences from the first responders, a monitary fine should be sufficent, and a reward if otherwise, in this way it can be a temporary incentive until people adapt.
