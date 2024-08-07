@@ -4,3 +4,6 @@ deal with i, needs a bit of work, for desgining the system, but the rest is ther
 the start of the next great thing.
 
 granted its pretty easy to set up  and idk, it could be implemented like ten tomorrows from now if we wanted really.. if they hired someone whoes like... the best at this stuff..
+
+
+still working on bits here and there for the paper but people are vultures sometimes  and i really want something more than ive ever wanted before in my life, so had to take this approach
