@@ -24,6 +24,5 @@ no sorrys.  a rule that helped give me what was taken from me.
 
 shes the reason for all this right now. your life is being saved from my work one day, because of her. got me feeling like the world could be ours, a future I belive I seen in her eyes.
 
-in addition, I only wanted her and only her opinion and remarks on this before i published, her word is the only one id wait outside all day just to hear, or to see her face id wait outside each day. 
-
+in addition, I only wanted her and only her opinion and remarks on this before i published, her word is the only one id wait outside all day just to hear, or to see her face id wait outside each day. i also love how strategic her mind is. cutest and most powerful thing ever. 
 
