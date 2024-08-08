@@ -1,4 +1,6 @@
-here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year. (forgive any fractured thinking, still recovering from major trauma, and still being affected by hate crimes each and every single day still.  -  recovering is going doing super great though, but there is a few things here and there im still working on and i suck at writing online. id prefer on the phone or in person but thats just me, here, its too easy to ramble -> edit -> repeat.) 
+here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year. 
+
+(forgive any fractured thinking, still recovering from major trauma, and still being affected by hate crimes each and every single day still..   -  recovering is going doing super great though, but there is a few things here and there im still working on and i suck at writing online. id prefer on the phone or in person but thats just me, here, its too easy to ramble -> edit -> repeat.) 
 
 needs a bit of work, for desgining the system is rather simple but thinking is still very difficult in these conditions, but the core is there, i just had to start.  but the AI says its pretty good right now, so ill take its pointers and write a few more things.  
 
@@ -24,5 +26,5 @@ no sorrys.  a rule that helped give me what was taken from me.
 
 shes the reason for all this right now. your life is being saved from my work one day, because of her. got me feeling like the world could be ours, a future I belive I seen in her eyes.
 
-in addition, I only wanted her and only her opinion and remarks on this before i published, her word is the only one id wait outside all day just to hear, or to see her face id wait outside each day. i also love how strategic her mind is. cutest and most powerful thing ever. 
+in addition, I only wanted her and only her opinion and remarks on this before i published, her word is the only one id wait outside all day just to have the chance to hear her voice or to potentially see her face if she drives by just to see her face (even though i cant really see that far..) i also love how strategic her mind is. cutest and most powerful thing ever. 
 
