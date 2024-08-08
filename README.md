@@ -27,3 +27,6 @@ and getting this out there feels like the start of the only great thing i could 
 no sorrys.  a rule that helped give me what was taken from me. 
 
 shes the reason for all this right now. your life is being saved from my work one day, because of her. 
+
+
+this was thought of during my +year of torture i endured through hate crimes. i hope we can get rid of hate one day but its a issue not suted to inventors to fix, but our society. ill never hate the people who did this to me, ill never hurt them either. they need help and i hope one day we as a society can deliver it. 
