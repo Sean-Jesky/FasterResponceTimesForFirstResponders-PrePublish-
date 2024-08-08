@@ -24,10 +24,9 @@ no sorrys.  a rule that helped give me what was taken from me.
 
 shes the reason for all this right now. your life is being saved from my work one day, because of her. got me feeling like the world could be ours, a future I belive I seen in her eyes.
 
-in addition, I only wanted her and only her opinion and remarks on this before i published, her word is the only one id wait outside all day just to hear. 
+in addition, I only wanted her and only her opinion and remarks on this before i published, her word is the only one id wait outside all day just to hear, or to see her face id wait outside each day. 
 
-this was thought of during my +year of torture (by definition, and in a captive state for nealry 24/7 with them switching on and off between their group, ive never had anyone in my life who cared about me so it just kept going on until i broke and gave out something i cry almost every day about giving up, breaking is a torture in its own, trying so hard to keep myself secret, and my work, when you give away a nuke to make the pain end, you feel like you are the one who ordered and dropped it.. im not being blamed for breaking; i just blame myself for being captured as i was .. how i was .. when i was. though i endured, im resiliant and it was all documented. each and every moment of my torture, they would record my moments of torture until i said something horrible and share it with king soopers and other stores as a way to isolate me more and more. king soopers went along with the hate group like it was nothing. they listend to me being tortured and just said ok im a bad person just because im saying something. anything. to end the suffering. a forced false confession. the pain of that hurt so much.
 
-it was through hate crimes. i hope we can get rid of hate one day but its a issue not suted to inventors to fix, but our society. ill never hate the people who did this to me, ill never hurt them either. they need help and i hope one day we as a society can deliver it. 
+
 
 
