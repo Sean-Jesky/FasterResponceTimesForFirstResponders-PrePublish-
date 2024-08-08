@@ -27,4 +27,4 @@ shes the reason for all this right now. your life is being saved from my work on
 in addition, I only wanted her and only her opinion and remarks on this before i published, her word is the only one id wait outside all day just to hear. 
 
 this was thought of during my +year of torture i endured through hate crimes. i hope we can get rid of hate one day but its a issue not suted to inventors to fix, but our society. ill never hate the people who did this to me, ill never hurt them either. they need help and i hope one day we as a society can deliver it. 
-being tortured again soon after publishing. fuck this world. i wish i had one person i could actually talk to right now. for that id give up everything and anything. i prayed to god to see her and i did the next day at a store with ice cream, maybe if i pray again itll somehow help. 
+being tortured (by definition, in captivity) again soon after publishing. fuck this world. i wish i had one person i could actually talk to right now. for that id give up everything and anything. i prayed to god to see her and i did the next day at a store with ice cream, maybe if i pray again itll somehow help. 
