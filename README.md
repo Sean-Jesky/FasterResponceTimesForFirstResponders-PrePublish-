@@ -20,13 +20,9 @@ i should just post all my notes on this that i did as well, but in my current li
         -possible effects on traffic stability.
         -how to incentivise civilian's to follow these rules (id suggest using insurance companies, if they get a photo of their licences from the first responders, a monitary fine should be sufficent, and a reward if otherwise, in this way it can be a temporary incentive until people adapt.
 
-
-
-and getting this out there feels like the start of the only great thing i could ever imagine. i just know, every bone in my body says so. just trying to impress one person really.. every other women (every other women is just a girl compared to her) can just walk away; i feel like ive found the one, - ive never seen anyone ever like her her power, her grace and her eyes tell me everything. 
-
 no sorrys.  a rule that helped give me what was taken from me. 
 
-shes the reason for all this right now. your life is being saved from my work one day, because of her. making me feel like the world could be ours, a future i seen through her eyes.
+shes the reason for all this right now. your life is being saved from my work one day, because of her. got me feeling like the world could be ours, a future I belive I seen in her eyes. 
 
 
 this was thought of during my +year of torture i endured through hate crimes. i hope we can get rid of hate one day but its a issue not suted to inventors to fix, but our society. ill never hate the people who did this to me, ill never hurt them either. they need help and i hope one day we as a society can deliver it. 
