@@ -1,4 +1,4 @@
-here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year. 
+here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year. (forgive any fractured thinking, still recovering from major trauma, doing super great, but there is a few things here and there im still working on)
 
 needs a bit of work, for desgining the system is rather simple but thinking is still very difficult in these conditions, but the core is there, i just had to start.  but the AI says its pretty good right now, so ill take its pointers and write a few more things.  
 
