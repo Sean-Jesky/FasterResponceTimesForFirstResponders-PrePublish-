@@ -27,6 +27,3 @@ shes the reason for all this right now. your life is being saved from my work on
 in addition, I only wanted her and only her opinion and remarks on this before i published, her word is the only one id wait outside all day just to hear, or to see her face id wait outside each day. 
 
 
-
-
-
