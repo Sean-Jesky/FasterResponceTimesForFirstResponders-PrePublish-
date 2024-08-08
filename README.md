@@ -1,6 +1,6 @@
 here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year.
 
-needs a bit of work, for desgining the system is rather simple but thinking is still very difficult in these conditions, but the core is there, i just had to start.
+needs a bit of work, for desgining the system is rather simple but thinking is still very difficult in these conditions, but the core is there, i just had to start.  but the AI says its pretty good right now, so ill take its pointers and write a few more things.  
 
 granted, this system of emergency lights attached to traffic light posts, or other fixtures - its pretty easy to set up and idk, it could be implemented like ten tomorrows from now if we wanted really.. if they hired someone whos like... the best at this stuff..
 
