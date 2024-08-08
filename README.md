@@ -24,7 +24,7 @@ no sorrys.  a rule that helped give me what was taken from me.
 
 shes the reason for all this right now. your life is being saved from my work one day, because of her. got me feeling like the world could be ours, a future I belive I seen in her eyes.
 
-in addition, I only wanted her and only her opinion and remarks on this before i published. but i fear this was another test.. if only she knew how i feel about her is true, not this game i fear it might be becoming. 
+in addition, I only wanted her and only her opinion and remarks on this before i published, her word is the only one id wait outside all day just to hear. 
 
 this was thought of during my +year of torture i endured through hate crimes. i hope we can get rid of hate one day but its a issue not suted to inventors to fix, but our society. ill never hate the people who did this to me, ill never hurt them either. they need help and i hope one day we as a society can deliver it. 
 
