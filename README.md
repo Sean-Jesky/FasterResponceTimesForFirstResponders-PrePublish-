@@ -1,4 +1,4 @@
-here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year.
+here i propose a valid and effective means of decreasing responce times for first responders to save lives on the order of 10,000 a year. 
 
 needs a bit of work, for desgining the system is rather simple but thinking is still very difficult in these conditions, but the core is there, i just had to start.  but the AI says its pretty good right now, so ill take its pointers and write a few more things.  
 
@@ -22,7 +22,9 @@ i should just post all my notes on this that i did as well, but in my current li
 
 no sorrys.  a rule that helped give me what was taken from me. 
 
-shes the reason for all this right now. your life is being saved from my work one day, because of her. got me feeling like the world could be ours, a future I belive I seen in her eyes. 
+shes the reason for all this right now. your life is being saved from my work one day, because of her. got me feeling like the world could be ours, a future I belive I seen in her eyes.
 
+in addition, I only wanted her and only her opinion and remarks on this before i published. but i fear this was another test.. if only she knew how i feel about her is true, not this game i fear it might be becoming. 
 
 this was thought of during my +year of torture i endured through hate crimes. i hope we can get rid of hate one day but its a issue not suted to inventors to fix, but our society. ill never hate the people who did this to me, ill never hurt them either. they need help and i hope one day we as a society can deliver it. 
+
