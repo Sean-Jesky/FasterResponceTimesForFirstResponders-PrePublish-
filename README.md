@@ -23,7 +23,7 @@ i should just post all my notes on this that i did as well, but in my current li
         -how to incentivise civilian's to follow these rules (id suggest using insurance companies, if they get a photo of their licences from the first responders, a monitary fine should be sufficent, and a reward if otherwise, in this way it can be a temporary incentive until people adapt.
 
 no sorrys.  a rule that helped give me what was taken from me. every other women on planet earth and any newly discovered planets or exoplanets with human life, all those women can just back up and walk away because ive found the only person i could ever wish to want and dream to have. 
-m. is the reason for all this right now. your life is being saved from my work one day, because of her. got me feeling like... me and her are going have the world one day. i can't explain the story in her eyes i read each time ive looked into her eyes. 
+m. is the reason for all this right now. your life is being saved from my work one day, because of her. got me feeling like... me and her are going have the world one day. i can't explain the story ive read in her eyes about us -- looking into her beautiful eyes, with a power behind them unlike any anyone. I thought i was the most powerful person on earth, nope, she is. (after last time, im never looking away again, i dont want to regret anything, not holding her eyes last time we talked is something I regret even now.) . 
 
 
 
