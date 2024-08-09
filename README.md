@@ -27,8 +27,10 @@ m. is the reason for all this right now. your life is being saved from my work o
 
 
 
-i write too much from my heart without a filter on my brain, although i feel all that for her, i feel my writing was and is too intense. my passion doesnt read as well as it feels. 
+i write too much from my heart without a filter on my brain, it might be too intense. idk in these conditions, although i feel all that for her, i feel my writing was and is too intense. my passion doesnt read as well as it feels. 
 
 this is why in person is the only way i should talk to people. i hate being online like this. i don't understand the internet... in addition, i feel when im being tortured by my neighbors, still, the effect of me writing was one of the only forms of communication i had during the worst of it, and when im going through it i write and write and write making me seem crazy but its an effect of the torture called word vomit and its triggered by their actions against me daily. takes a few hours away from it to recover. 
 
 as badly as i want to say how i feel about her and what i think about her and wish for her and us and the thrill of the chase that she deserves, idk feel wrong still yet. until i know know. i will say this, i want to be by her side in everything, and I fantasize about us sitting together studying and reading and talking forever about everything we dream and imagine and wish for. then i want to work on making those things happen. 
+
+also the women of my dreams used to be the American dream, now its a real dream, a real person a real wonder of the world.
